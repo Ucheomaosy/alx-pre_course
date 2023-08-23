@@ -1,1 +1,1 @@
-God is Good 
+The school is open!
